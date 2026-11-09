@@ -1,11 +1,17 @@
-# Sigabo
-My favorite series is Sigabo. It is a Philippine television drama action comedy series produced by CCM Film Productions and Dreamscape Entertainment. Directed by Malu L. Sevilla, Darnel Joy R. Villaflor, Richard V. Somes and Coco Martin, it stars Martin and Julia Montes in the lead roles. 
+# The Legend of Korra 
+> My favorite series is Avatar. The Avatar series is an animated franchise following the journey of the Avatar, a hero who can master all four elements to maintain balance in a world divided into four nations.is set roughly 70 years later and follows Korra, the next Avatar, a Waterbender from the Southern Water Tribe. This series explores political and spiritual conflicts in a modernizing world, continuing the Avatar cycle
 
 **Main Characters**
 
-1. Coco Martin
-2. Julia Montes
-3. Edu Manzano
-4. Joey Marquez
-5. Irma Adlawan
+**1. Korra**
+
+**2. Mako**
+
+**3. Bolin**
+
+**4. Asami Sato**
+
+**5. Varrick**
+
+>
 
